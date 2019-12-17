@@ -1,0 +1,2 @@
+# lesliewilder
+I'm a Creative Writer, I'm also a a self-proclaimed happiness junkie,and someone you would generally consider confident and well balanced. I would say it is more accurate to say that I live a normal life along with all the usual stresses that come with life and running a business. But. no matter how messy my hair is, or how much falling apart I seem to be doing at the moment, I LOVE IT ALL!
